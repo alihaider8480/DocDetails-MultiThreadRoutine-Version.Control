@@ -30,3 +30,7 @@ kardonga to wo sari hit kara ga or us ka bad mujha Exc Inc Rtn ko yes kardonga o
 ![image](https://user-images.githubusercontent.com/40827670/223347976-293e1bba-3791-403f-a2e5-5856d1fb9345.png)
 
 
+ab ya aik fund Transfer ka version.control ka ss hai asahi
+![image](https://user-images.githubusercontent.com/40827670/223348711-07d52b67-18e4-4334-a479-2740150b0711.png)
+
+
